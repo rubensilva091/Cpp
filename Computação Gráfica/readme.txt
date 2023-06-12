@@ -11,4 +11,6 @@ Phase2:https://www.youtube.com/watch?v=TRg4daqbpBo&ab_channel=RubenSilva
 Phase3:https://www.youtube.com/watch?v=zl5xRsTnnA4&ab_channel=RubenSilva
 Phase4:https://www.youtube.com/watch?v=Uy5wZQZ3jas&ab_channel=RubenSilva
 
-NOTE: 20/20 University of UMinho
+NOTE: 18/20 University of UMinho
+
+BEST GRADE OF THE FCKING CLASS, LFG!!!!!!!!!!!!!!!!!!!!!!!!!!!
